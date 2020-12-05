@@ -4,8 +4,8 @@
 #If You Wanna Take Credits For This Code, Please Look Yourself Again...
 #Reserved2020
 
-😢😢  My Name Is Raheem Khan 
-Im From Afghanistan Plz Saport Me Friends😭😭
+My Name Is Raheem Khan 
+Im From Afghanistan Plz Saport Me Friends
 
 \033[1;94m▦═══█🔻🔻██🔻🔻█═══▦
 \033[1;94m╔━━❖❖❁❖❖━━╗ 
